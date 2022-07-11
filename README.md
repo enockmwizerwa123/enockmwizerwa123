@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Enock Mwizerwa I am Rwandan i have master's degree in mathematical science from African Institute for Mathematical Sciences I also have Bachelor degree in Mathematics form University of Rwanda.
+- 👋 Hi, I’m @Enock Mwizerwa I am Rwandan i have master's degree in mathematical science from African Institute for Mathematical Sciences I also have Bachelor degree in Mathematics from University of Rwanda.
 I am  a person who likes to be creative and to try new things, I like to learn from others.
 After realizing that climate change,  is one of a global problem.
 I decided to continue my master's degree at the African Institute for mathematical science(AIMS) in climate science. studying climate science involves models that require mathematics in order to get better policies for that issues. So, this will help me to use mathematics to give my contributions to the prevention of climate change.
